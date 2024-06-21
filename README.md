@@ -1,2 +1,2 @@
 # icc22
-کنفرانس شیمی 1403
+22nd Iranian Chemistry Congress - 2024 May
